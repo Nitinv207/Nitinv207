@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Nitinv207
+- 👀 I’m interested in playing games, learning about new teachnology, listen to music.
+- 🌱 I’m currently learning coding, computer languages.
+- 📫 How to reach me my email - verma.512nitin@gmail.com
